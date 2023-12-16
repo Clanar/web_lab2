@@ -1,1 +1,6 @@
 ![зображення](https://github.com/Clanar/web_lab2/assets/89971291/7fa94e5f-66cf-4d85-9b3d-2b0f51364e15)
+![зображення](https://github.com/Clanar/web_lab2/assets/89971291/86772055-499b-4f01-95be-2a6d07874773)
+![зображення](https://github.com/Clanar/web_lab2/assets/89971291/1caeec66-5f33-44f0-bb4a-9241e65e5294)
+![зображення](https://github.com/Clanar/web_lab2/assets/89971291/2e895195-fbc3-41cc-b365-67cd8e82bc92)
+![зображення](https://github.com/Clanar/web_lab2/assets/89971291/c2559f43-f6af-4bcb-b429-51c1e10ea35e)
+![зображення](https://github.com/Clanar/web_lab2/assets/89971291/a64022ae-3c5a-462d-b18a-fe96506036e1)
